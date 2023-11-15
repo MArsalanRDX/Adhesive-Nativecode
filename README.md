@@ -37,4 +37,4 @@ Different systems of hot melt adhesives have different resistance to chemical me
 ## Bonding Strength
 Thermoplastic hot melt adhesives can gain ultimate strength immediately after cooling. They soften again when the temperature rises. Moisture-curing polyurethane hot-melt adhesive exists in thermosetting form after absorbing moisture and cross-linking, and the cured polyurethane hot-melt adhesive cannot be melted anymore.
 
-##### Source: [Industrial Adheisve Manufacturer]([url](https://www.adhesivesmanufacturer.com/)https://www.adhesivesmanufacturer.com/)
+##### Source: [Industrial Adheisve Manufacturer](https://www.adhesivesmanufacturer.com/)
